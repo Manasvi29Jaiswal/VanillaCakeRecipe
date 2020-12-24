@@ -1,1 +1,1 @@
-Sift the dry ingredients that is 1 cup flour and 1/4 cup sugar the add some milk,1/4 cup vegetable oil and 1/4 cup condensed milk.Stir the batter well and then add 1 tsp vanilla essence,1 tsp baking powder and 1/4 tsp baking soda.
+Sift the dry ingredients that is 1 cup flour and 1/4 cup sugar then add some milk,1/4 cup vegetable oil and 1/4 cup condensed milk.Stir the batter well and then add 1 tsp vanilla essence,1 tsp baking powder and 1/4 tsp baking soda.
